@@ -1,1 +1,1 @@
-# cdn.swap.gg
+# cdn.s
